@@ -1,2 +1,2 @@
-# ady-2 l
+# ady-2 
 làm qua đây gửi là xong
